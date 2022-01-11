@@ -1,0 +1,3 @@
+ One afternoon Ben was playing in the back yard, A big black cat jumped over the fence and lay down among his mother's plants.  Ben crept up to the cat. He caught it by the tail and dropped it into a tub of water.
+         His mother looked out of the window and saw him. She called him into the house and scolded him for such a cruelty. Then she told him that he must go to bed and stay there till evening. 
+        Before long Ben fell asleep. He dreamed that he grew very small A very very big cat seized him in its mouth and ran away with him He kicked and screamed, but he could not get away, At last the cat dropped him and he fell into a big pond. He sand down, down into the cold water. Then he woke up.
